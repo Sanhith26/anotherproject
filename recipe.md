@@ -1,0 +1,1 @@
+Make the dough, shape the dough, stir the sauce, pour sauce on dough, put dough in oven.
